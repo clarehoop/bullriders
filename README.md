@@ -1,4 +1,4 @@
-# Professional Biographies
+# Bull Riders Professional Biographies
 ---
 ## Clare Hooper
 ### **Contact**
